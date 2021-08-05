@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Fancynot04
 - 👀 I’m interested in game
 - 🌱 I’m currently learning python,linux and network
-- 💞️ I’m looking to collaborate on some new intimates.
+- 💞️ I’m looking to collaborate on some new friends.
 - 📫 3241951559@qq.com 
 
 <!---
